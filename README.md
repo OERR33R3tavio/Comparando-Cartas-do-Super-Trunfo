@@ -1,0 +1,1 @@
+# Comparando-Cartas-do-Super-Trunfo
